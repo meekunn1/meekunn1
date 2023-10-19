@@ -5,7 +5,7 @@ Improving my CAD skills to create cleaner, more reusable data has become my pers
 
 
 ### Experience
-Currently working as a CAD designer in a car model making company. (7 years and counting)\
+Currently working as a CAD designer in a car model making company. (6 years and counting)\
 Teamwork and communication are a must, because it takes a team to create a full-scale automobile model.
 
 ### Interests
